@@ -2,6 +2,6 @@ Master Branch
 
 Super Saiyan God
 
-Super Saiyan Blue
+JIHAIHOIQHIOJEQOI
 
 Ultra Instinct
